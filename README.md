@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @HugsSunshine
+- 👀 I’m interested in editing videos
+- 🌱 I’m currently studying grade 7
+- 💞️ I’m looking to collaborate on nothing
